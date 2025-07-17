@@ -1,2 +1,1 @@
-# EasyMedicines
-SEHAT AAPKE GHAR TAK
+hhhhhhh
